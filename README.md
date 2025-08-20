@@ -1,2 +1,2 @@
 # adol-sidiq
-hidup mati hharus  di isi belaar
+hidup mati harus  di isi dengan belajar
